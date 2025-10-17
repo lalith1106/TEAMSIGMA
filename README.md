@@ -1,2 +1,0 @@
-# TEAMSIGMA
-ram,prakash
